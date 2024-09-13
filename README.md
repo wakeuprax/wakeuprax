@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @wakeuprax
+- 👀 I’m interested in Web-Dev, ML & Content Editing.
+- 🌱 I’m currently learning Back-end and python.
+- 💞️ I’m looking to collaborate on Open Source Python Projects & Creating Dynamic Websites.
+- 📫 Contact me on IG: https://www.instagram.com/pushkarrrrrrrrrrrrrr/
+- 😄 Pronouns: HE/HIM
+- ⚡ Let's learn and earn, together  :)
